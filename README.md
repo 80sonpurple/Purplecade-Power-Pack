@@ -21,3 +21,6 @@ Just Eat It: https://docs.google.com/document/d/1Ko8vkwByTNpDVEWM9N6tiBmNrZj9ggC
 Sphererollies Roll Spheres Roll: https://docs.google.com/document/d/1LAE9NUS98skR5VLCNqW2MJu36ke3W_FTPEXa6J5KsBA/edit?usp=drivesdk
 
 Pin Plush Purplecade Quest: https://docs.google.com/document/d/1LMdnDkEkvTM0aBY7T9NvtZMrUq8FTldLRLkIzrDF9sg/edit?usp=drivesdk
+
+Purple Castaway:
+https://docs.google.com/document/d/1DjC7Ijdo7YcGF77raekzH32epFVk3Q2bn-jIY8hg6N8/edit?usp=drivesdk
