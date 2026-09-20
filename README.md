@@ -24,3 +24,6 @@ Pin Plush Purplecade Quest: https://docs.google.com/document/d/1LMdnDkEkvTM0aBY7
 
 Purple Castaway:
 https://docs.google.com/document/d/1DjC7Ijdo7YcGF77raekzH32epFVk3Q2bn-jIY8hg6N8/edit?usp=drivesdk
+
+Mind-Boggling Mahjong:
+https://docs.google.com/document/d/1GjOCpHY8cTMEn_KfM10YR2rwrJxMz6HfC1UQrQBD2Mw/edit?usp=drivesdk
