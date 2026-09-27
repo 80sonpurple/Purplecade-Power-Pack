@@ -27,3 +27,7 @@ https://docs.google.com/document/d/1DjC7Ijdo7YcGF77raekzH32epFVk3Q2bn-jIY8hg6N8/
 
 Mind-Boggling Mahjong:
 https://docs.google.com/document/d/1GjOCpHY8cTMEn_KfM10YR2rwrJxMz6HfC1UQrQBD2Mw/edit?usp=drivesdk
+
+Sling Bot:
+https://docs.google.com/document/d/1Hub6lMnbP9mgZv2399WPeU_K5kGeP0FGlgiY9lRJPZE/edit?usp=drivesdk
+
