@@ -12,7 +12,8 @@ Purple The Heatwave: https://docs.google.com/document/d/1AE0SrwF-TMmR6Bu9J7IivDt
 
 Fuel Eye: https://docs.google.com/document/d/1FRgq0a7uDjypbn1pCZHC2MM8vSGdAf1pteGisDRvDi0/edit?usp=drivesdk
 
-Purple Forever After:https://docs.google.com/document/d/1KNFYGeMGnkCinQIWq1ex9BoC4zvhasMmTR0P_ydxo_U/edit?usp=drivesdk
+Purple Forever After:
+https://docs.google.com/document/d/1KNFYGeMGnkCinQIWq1ex9BoC4zvhasMmTR0P_ydxo_U/edit?usp=drivesdk
 
 Men In Dead Ghost Seas: https://docs.google.com/document/d/1Ke1RsEIjLXfFBERziJtqvOIOflvrY2jMNupaZmEgBZ0/edit?usp=drivesdk
 
@@ -34,3 +35,5 @@ https://docs.google.com/document/d/1Hub6lMnbP9mgZv2399WPeU_K5kGeP0FGlgiY9lRJPZE/
 Darkz Move It:
 https://docs.google.com/document/d/1LURk0xl07M8wj85NVMkDC9qVg9CA66O88USYA1iGgKU/edit?usp=drivesdk
 
+Purplecade Puzzles:
+https://docs.google.com/document/d/1LaHoPOHuQo7TW9tPJyEBZfDLC4PFba2JDWp51xNFtDE/edit?usp=drivesdk
