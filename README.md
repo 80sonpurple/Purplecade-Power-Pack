@@ -37,3 +37,6 @@ https://docs.google.com/document/d/1LURk0xl07M8wj85NVMkDC9qVg9CA66O88USYA1iGgKU/
 
 Purplecade Puzzles:
 https://docs.google.com/document/d/1LaHoPOHuQo7TW9tPJyEBZfDLC4PFba2JDWp51xNFtDE/edit?usp=drivesdk
+
+Purple Strike Showdown:
+https://docs.google.com/document/d/1Nx4ELlbmxSXbL3rWw1N3d5WCgEd99OkOZcENpleZxx8/edit?usp=drivesdk
