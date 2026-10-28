@@ -40,3 +40,6 @@ https://docs.google.com/document/d/1LaHoPOHuQo7TW9tPJyEBZfDLC4PFba2JDWp51xNFtDE/
 
 Purple Strike Showdown:
 https://docs.google.com/document/d/1Nx4ELlbmxSXbL3rWw1N3d5WCgEd99OkOZcENpleZxx8/edit?usp=drivesdk
+
+Spooky Drivers:
+https://docs.google.com/document/d/1OmWR9MsokZS8AKCB5Qa_BvBDGT0BQsm1C6CbvVGP3GA/edit?usp=drivesdk
