@@ -49,3 +49,6 @@ https://docs.google.com/document/d/1P8Pxyz7XrdhY3UnvHrUhcmxJ4946BELXORrXhf3k0gg/
 
 Catfill:
 https://docs.google.com/document/d/1PdIB2ijtwoS3W848m2WeAt94r9xArJza8iwV3e2HiA8/edit?usp=drivesdk
+
+Astrid Reaper’s Chest:
+https://docs.google.com/document/d/1PndEaUecp-1No0zULebvuUEjkGMDRSu7X7urNpbWDfs/edit?usp=drivesdk
