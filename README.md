@@ -52,3 +52,6 @@ https://docs.google.com/document/d/1PdIB2ijtwoS3W848m2WeAt94r9xArJza8iwV3e2HiA8/
 
 Astrid Reaper’s Chest:
 https://docs.google.com/document/d/1PndEaUecp-1No0zULebvuUEjkGMDRSu7X7urNpbWDfs/edit?usp=drivesdk
+
+Purplecade Color Morphs:
+https://docs.google.com/document/d/13WaCc6Qyl9O1gvfsBARjmZRS_t2jvTSlCeKpXFKAQHk/edit?usp=drivesdk
