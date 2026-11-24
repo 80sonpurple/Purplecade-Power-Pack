@@ -55,3 +55,6 @@ https://docs.google.com/document/d/1PndEaUecp-1No0zULebvuUEjkGMDRSu7X7urNpbWDfs/
 
 Purplecade Color Morphs:
 https://docs.google.com/document/d/13WaCc6Qyl9O1gvfsBARjmZRS_t2jvTSlCeKpXFKAQHk/edit?usp=drivesdk
+
+Pool Rush:
+https://docs.google.com/document/d/1IG_FpICubGmthVbY5vPCXnthifc9XYa7tv44thxqtJs/edit?usp=drivesdk
