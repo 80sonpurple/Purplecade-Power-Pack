@@ -58,3 +58,6 @@ https://docs.google.com/document/d/13WaCc6Qyl9O1gvfsBARjmZRS_t2jvTSlCeKpXFKAQHk/
 
 Pool Rush:
 https://docs.google.com/document/d/1IG_FpICubGmthVbY5vPCXnthifc9XYa7tv44thxqtJs/edit?usp=drivesdk
+
+Shaping Up:
+https://docs.google.com/document/d/1IesqIWywmwNv9helXN0zcM6XLMQraTLgJFYQdnVo-Xw/edit?usp=drivesdk
