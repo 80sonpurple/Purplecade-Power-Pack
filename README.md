@@ -64,3 +64,7 @@ https://docs.google.com/document/d/1IG_FpICubGmthVbY5vPCXnthifc9XYa7tv44thxqtJs/
 
 Shaping Up:
 https://docs.google.com/document/d/1IesqIWywmwNv9helXN0zcM6XLMQraTLgJFYQdnVo-Xw/edit?usp=drivesdk
+
+Power Pack 2:
+
+Coming Soon… ❓❓❓
