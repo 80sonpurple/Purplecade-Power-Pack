@@ -8,6 +8,7 @@ As time goes on, more and more games roll out.
 Stop wasting time with those OTHER Arcade games, and get the highest score you can get.
 
 Manuals
+
 Power Pack 1:
 
 Purple The Heatwave: https://docs.google.com/document/d/1AE0SrwF-TMmR6Bu9J7IivDtTD5BtO7RgXlrghey4gOI/edit?usp=drivesdk
